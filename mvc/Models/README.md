@@ -1,2 +1,0 @@
-# ConcesionarioLosJefes
-E - Commers
